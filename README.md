@@ -1,1 +1,2 @@
-# chronicles-of-heavenly-demon
+# Chronicles of Heavenly Demon
+« Vous avez placé l'harmonie en crédo toute votre vie et c'est comme ça que vous partez ...! ». Le successeur de la secte des maîtres de la lance et son apprenti Hyuk Woon Seong ont été accusés d'apprendre un art démoniaque interdit et ont été massacrés. Une mort injuste et misérable des mains des hypocrites et menteurs de la secte orthodoxe. Au moment où Woon Seong a fait face à sa mort, l'artéfact des maîtres de la lance émet une lumière et lui offre une nouvelle vie. Une vie en tant que numéro 900, un stagiaire du culte démoniaque ! Woon Seong se met à s'entrainer en mélangeant les art orthodoxes et démoniaques, avec un unique objectif en tête : La Vengeance !
